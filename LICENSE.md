@@ -1,4 +1,4 @@
-
+secret Script for life together rp is the best life together rp Script, featuring custom skins and invisibility. Safe and powerful for all your needs.
 
 
 
